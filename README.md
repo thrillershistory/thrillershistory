@@ -5,4 +5,4 @@
 
 [<img src="https://i.postimg.cc/jqz2nH1p/Untitled2196-20260618140737.png" width="250">](https://thrillerhistory.atabook.org/)
 [<img src="https://i.postimg.cc/X7tn2XTV/Untitled2196-20260618142349.png" width="250">](https://en.pronouns.page/@thrillershistory/)
-[<img src"https://i.postimg.cc/RFqH7NkJ/Untitled2196-20260618145311.png" width="250">]()
+[<img src="https://i.postimg.cc/RFqH7NkJ/Untitled2196-20260618145311.png" width="250">](https://thrillernight.straw.page/)
