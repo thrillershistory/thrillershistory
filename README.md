@@ -3,6 +3,6 @@
 <div align="center">
 <img sarc="900" height="1000" alt="Untitled2194_20260618113110" src="https://github.com/user-attachments/assets/ff9b463a-dc92-46db-a492-9378a58c73b5" />
 
-[<img src="https://i.postimg.cc/jqz2nH1p/Untitled2196-20260618140737.png" width="230">](https://thrillerhistory.atabook.org/)
-[<img src="https://i.postimg.cc/X7tn2XTV/Untitled2196-20260618142349.png" width="230">](https://en.pronouns.page/@thrillershistory/)
-[<img src="https://i.postimg.cc/RFqH7NkJ/Untitled2196-20260618145311.png" width="230">](https://thrillernight.straw.page/)
+[<img src="https://i.postimg.cc/jqz2nH1p/Untitled2196-20260618140737.png" width="200">](https://thrillerhistory.atabook.org/)
+[<img src="https://i.postimg.cc/X7tn2XTV/Untitled2196-20260618142349.png" width="200">](https://en.pronouns.page/@thrillershistory/)
+[<img src="https://i.postimg.cc/RFqH7NkJ/Untitled2196-20260618145311.png" width="200">](https://thrillernight.straw.page/)
